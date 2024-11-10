@@ -1,4 +1,4 @@
-# Nataliiya, Grusiuk
+# Nataliiya, Grysiuk
 
 ## Contacts
 
